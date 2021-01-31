@@ -1,3 +1,3 @@
 # Kokoa Clone 2021 class
 
-Now start real class!
+This class is so intersting!!!
